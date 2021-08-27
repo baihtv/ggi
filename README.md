@@ -1,6 +1,6 @@
 #####最新地址：
 
-##### http://ggi91.com
+##### https://qq.com.bh80.xyz
 
 ##### 
 
