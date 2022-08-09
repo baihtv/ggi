@@ -1,6 +1,6 @@
 #####最新地址：
 
-##### https://qq.com.bh15.xyz
+##### https://qq.com.bh150.com
 
 ##### 
 
