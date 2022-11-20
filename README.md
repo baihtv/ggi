@@ -1,6 +1,6 @@
 #####最新地址：
 
-##### https://bzd9.cc
+##### https://qq.com.bh02.xyz
 
 ##### 
 
